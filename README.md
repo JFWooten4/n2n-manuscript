@@ -1,0 +1,1 @@
+Some of the typos made it through the [centralized editing](https://youtu.be/Qs2JVYNsVck?t=437). I noticed very many of them when recording [the audiobook](https://www.youtube.com/playlist?list=PLWUFvhKuc_5sDW-0Elb1tc-TffW1xbpMh). Hence you can track all content changes (plus ancillary art materials) here. 💜
